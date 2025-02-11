@@ -1,1 +1,2 @@
-Testing why the corn is turning pink rathern under political stress, while the other geontypes stay green.
+Testing why the corn is turning pink rather under radical political stress, while the other geontypes stay green.
+:-/
